@@ -7,3 +7,6 @@
 - Electricity 
 - Arcteryx Atom Jacket
 - Spikeball set
+- Tomorrow and Tomorrow and Tomorrow
+- Sea of Tranquility
+- Ex Hex
