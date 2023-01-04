@@ -1,0 +1,9 @@
+- Bacon
+- Bananas x2
+- Kimchi
+- 2023 BMW X5
+- Cold brew
+- Annual family pass to Shedd Aquarium
+- Electricity 
+- Arcteryx Atom Jacket
+- Spikeball set
